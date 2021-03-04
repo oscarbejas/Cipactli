@@ -1,1 +1,1 @@
-"Aquí reside todo el código y media para la elaboración de la página web del acuario de Obregón" 
+Cipactli nace de la urgencia por visibilizar la inmensa diversidad biológica y cultural de México, las cuales se encuentran en un lamentable proceso de deterioro, producto de una infinidad de problemas sociales y políticos. Haciendo claros los estos problemas a través de contenido escrito y audiovisual, Cipactli, a semejanza de Alejandro Magno, hace frente a este nudo gordiano que atenta con la estabilidad de todos los ciudadanos.
